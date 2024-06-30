@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @gyurka66
 - 👀 I’m interested in most things
-- 🌱 I’m currently learning byond
 - 💞️ I’m looking to collaborate on interesting stuff
 - 📫 How to reach me nygyurka@gmail.com
 
